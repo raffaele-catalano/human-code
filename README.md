@@ -8,5 +8,5 @@ Visto che dimentico sempre qualcosa, decido di appuntarmi tutto ciò che manca i
 - David Salvatore Calaiò
 - Raffaele Catalano
 - Leonardo Chen
-- Marco De Marie
+- Samuele Bumbello
 - Cosimo Tramonte
